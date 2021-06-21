@@ -9,4 +9,6 @@ Complete Video Link: YouTube:https://www.youtube.com/watch?v=0Hi1RXPoAMw
 
 DataSet Link:https://drive.google.com/file/d/11Iq7YvbWZbt8VXjfm06brx66b10YiwK-/view
 
+LinkedIn post : https://www.linkedin.com/posts/subiksha-s-233792195_gripjune21-task2-thesparksfoundation-activity-6809076352709480448-Ti0e
+
 By- S.Subiksha
